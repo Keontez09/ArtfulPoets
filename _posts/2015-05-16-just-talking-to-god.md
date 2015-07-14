@@ -1,0 +1,11 @@
+---
+ID: 188
+post_title: Just talking to God
+author: Cap
+post_date: 2015-05-16 18:23:29
+post_excerpt: ""
+layout: post
+permalink: http://www.artfulpoets.com/%page%
+published: true
+---
+So let's be real about it all. Will get to physical reality later on, cause spiritually shit don't seem the same. 2014 years and skipping past the embryo stages and on to adulthood. I may not have all I think I should, but honestly I'm good. I've seen too many things any people go to complain about the little things, especially when it's somebody in the world that doesn't know where there next meal will come from. It's hard out here in these streets. So I'm laughing, and overjoyed to be able to forgive myself for my shortcomings and happy cause of the true joy I've received. If you don't know what it is I'll explain, it's that feeling you get when your around genuine friends and somebody cracks a joke that makes you laugh so hard you feel it in your belly button; and you know that's where you started. The rest is easy as long as you don't worry. Worrying creates doubt, and doubt kills faith/happiness, took a tasteful winter fling for me to realize that was the truth. I can honestly just kick it like Shanobi to be frank, cause these little niggas out here thinking they Pink or something, money don't get you know crown, and damn sho can't buy you a meeting with the king! So homie pay homage, to the ones who came before you. Understand that this reality that you cling to is surely going to come to an end, and your going to have to answer for your sins. So don't get so boastful, the earth and everything in it is merely composed of fading energy, and one day the sun going to forget how to shine. And all that shit you thought was cool, wont be so funny, when the master of the sky asks what you were thinking, what you gone tell him? It being hard in these streets just won't cut it, or the fact you was doing what you had to do to survive dot make it alright. Till then let's just ponder, and try to see what we can do in hopes somebody feel ya.

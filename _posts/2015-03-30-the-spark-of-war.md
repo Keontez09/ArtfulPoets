@@ -1,0 +1,17 @@
+---
+ID: 98
+post_title: The Spark of War
+author: Cap
+post_date: 2015-03-30 21:35:43
+post_excerpt: ""
+layout: post
+permalink: http://www.artfulpoets.com/%page%
+published: true
+---
+I heard that you asked for me, what's happenin!? Naw I don't want to hear nothing about what you thought I had done did. Keep talking, Kid! You Still gripping after all that I done did! I showed you exactly what you wanted, you asked for help so I opened your eyes, name a time in which it's been so difficult to see through their disguise? Don't worry I'll wait! Exactly! I don't have time for your simple adolescence. You praying but do you even know who you praying to son. Boy open your eyes, don't you know I'm the first thing you listen too! May bad I'm yelling, I'm sorry. At least you was praying for me. I'll be right back, we'll talk...
+
+Shone!...Shone!...!!!..! Don't turn your head at me Son. You've forgotten that I know who you are, you are my Son too. In terms of me and you there is non higher, I understand what you've felt. I don't mean to yell but at least now you hear me. Don't look down at the keyboard just keep typing, I'll correct your mistakes. See, don't you get it. Please hear me. He is here, I got him. Don't worry we are going to get that bbq popping, just listen up. Son, don't worry...yy.y.y.yyyy........
+
+What up I'm back! Man my bad, stupid ass Broad wasn't writing me back, you know they be tripping. Naw I'm listening you said I did what now? Man, what nigga that was you! Okay if it wasn't you then I'll tell you straight up, you wasn't there either. You knew what I was doing, and lead me straight into it. Man Naw, get out of here with that, I'm sick of that! If you don't like where we at why don't you do something about it. Since you run shit, since you the overseer of this world. You already know, don't play with me dude. So quick to point ya finger, what about you? I gave you power, didn't you feel me, it was me that dispersed them. He merely dispensed them; STAY OUT OF THIIS! My bad, I'm sorry. However, this ain't got nothing to do with you. I understand that you would give your life for me but you've done enough.... ….. ….. ….. .. ….. I wasn't there but I heard about it.
+
+Okay now I get it! See you Negus tripping, and I'm speaking delicately. Uh where do I start. Man stop all that deceit at heart, cause for real I can see right through you. All I'm saying is, what ya'll still fighting for though, I mean if you feel some type of way. Go head get it over with, so the rest of us can get on bout our day. By our I mean me and Jesus. You see we got a bar-b-que to get to, and this little dispute got a brotha hungry as a mug. Forget the drank, they got a water faucet round back don't they? We'll drank from that, just as soon as we get through with this kickball game. That's for my homies, true tru homies. For Jesus loves me, the bible done already told me “sooooooo... yeah...” in the words of Neka, I know understand why she was so important. I just had to put together the puzzle so I could see, and for God's sake let go. The battle already won, so why you fighting. It physically don't have a damn thing to do with us, but spiritually I have to paint the picture for you. And so the battle continues...<a href="http://www.artfulpoets.com/wp-content/uploads/2015/03/2015-03-27-07.23.47.jpg"><img class="alignright size-medium wp-image-107" src="http://www.artfulpoets.com/wp-content/uploads/2015/03/2015-03-27-07.23.47-248x300.jpg" alt="2015-03-27 07.23.47" width="248" height="300" /></a>
