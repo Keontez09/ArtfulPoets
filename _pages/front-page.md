@@ -5,7 +5,7 @@ author: Cap
 post_date: 2015-06-10 05:55:24
 post_excerpt: ""
 layout: page
-permalink: http://www.artfulpoets.com/
+permalink: http://www.artfulpoets.com/front-page
 published: true
 panels_data:
   - |
